@@ -1,0 +1,2 @@
+# altru
+Altruismus
